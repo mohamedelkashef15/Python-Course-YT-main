@@ -79,7 +79,7 @@ More sections will be added as the course progresses.
 
 Subscribe and follow the complete course on YouTube:
 
-👉 https://www.youtube.com/@Mohamed.Elkashef
+👉 https://youtu.be/o3paqBstP9Y?si=h0K0oT41FATbMabO
 
 ---
 
